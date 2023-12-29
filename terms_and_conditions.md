@@ -32,4 +32,4 @@ These terms and conditions are effective as of 2022-04-10
 
 **Contact Us**
 
-If you have any questions or suggestions about the Terms and Conditions, do not hesitate to contact *Happy Square LLC* at *tam.n.hoskins@gmail.com*.
+If you have any questions or suggestions about the Terms and Conditions, do not hesitate to contact *Happy Square LLC* at *support@heyitstam.com*.
